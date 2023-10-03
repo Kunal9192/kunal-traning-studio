@@ -1,1 +1,1 @@
-# kunal-traning-studio
+# kunal-training-studio
